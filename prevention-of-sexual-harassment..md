@@ -2,7 +2,7 @@
 
 ## Overview
 
-This README outlines information about sexual harassment, its various forms, and what steps to take when facing or witnessing such behavior in the workplace.
+This README outlines information about sexual harassment, its various forms, and what steps I take when i am facing or witnessing such behavior in the workplace.
 
 ## What kinds of behavior cause sexual harassment?
 

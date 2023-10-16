@@ -18,7 +18,7 @@ These forms of harassment can be categorized into two primary types: "Quid pro q
 
 ## What to do when facing or witnessing such behavior?
 
-In the event of facing or witnessing sexual harassment, follow these steps to address the situation and ensure a safe and respectful work environment:
+In the event of facing or witnessing sexual harassment, I follow these steps to address the situation and ensure a safe and respectful work environment:
 
 1. **Report the Incident:** If I am victim or a witness, report the incident to my HR department or the designated authority within my organization. And I Provide a detailed account of the harassment, including the date, time, location, and individuals involved.
 
